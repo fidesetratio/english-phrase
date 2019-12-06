@@ -9,4 +9,4 @@
 8. Why they are rushing?.
 9. If you wouldn't mind, please sketch us?.
 10.I think we're back on the track right now.
-11.During press confrence now, someone asks Nancy Pelocy whether she hate the president.
+11.During a press confrence now, someone asks Nancy Pelocy whether she hate the president.
